@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing specific *finger gubs*
 - 📫 How to reach me : IG - @d.drab_ / Gmail - drabdaniel0@gmail.com
 - 😄 Pronouns: He / him
-- ⚡ Fun fact: Theres 206 bones in your body (207 if youre lucky), and thats about 206 wayy too many so take them out, get rid of them :D
+- ⚡ Fun fact: Theres 206 bones in your body (207 if youre lucky *wink*), and thats about 206 wayy too many so take them out, get rid of them :D
 
 "Ceaseless Watcher, turn your gaze upon this wretched thing"
 
