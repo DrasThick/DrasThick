@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DrasThick
 - 👀 I’m interested in programing and web/game development :D (didnt touch game development yet)
 - 🌱 I’m currently learning Python, PHP, Html and CSS 
-- 💞️ I’m looking to collaborate on nothing specific *finger gubs*
+- 💞️ I’m looking to collaborate on nothing specific (*finger guns*)
 - 📫 How to reach me : IG - @d.drab_ / Gmail - drabdaniel0@gmail.com
 - 😄 Pronouns: He / him
 - ⚡ Fun fact: Theres 206 bones in your body (207 if youre lucky *wink*), and thats about 206 wayy too many so take them out, get rid of them :D
